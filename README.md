@@ -15,7 +15,7 @@ You must understand that there is only one God, and that is Allah, the Truth. Th
 
 Listen to the Qur’an to feel its truthfulness, to feel the reality. After studying Islam well, and understanding it, and reflecting on your life and experiences, you will begin to believe. And after studying the Qur’an, realizing it, and understanding it, congratulations—you will begin to have faith.
 
-**This is not my opinion, nor the opinion of anyone else. This is the truth.**
+**This is the truth.**
 
 
-**GOOD LUCK**
+**GOOD LUCK EVERYONE**
