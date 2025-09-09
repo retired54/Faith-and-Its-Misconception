@@ -15,6 +15,9 @@ You must understand that there is only one God, and that is Allah, the Truth. Th
 
 Listen to the Qur’an to feel its truthfulness, to feel the reality. After studying Islam well, and understanding it, and reflecting on your life and experiences, you will begin to believe. And after studying the Qur’an, realizing it, and understanding it, congratulations—you will begin to have faith.
 
+
+**True faith will make you never fear failure, nor people, nor even jinn, nor anything else. You will remain calm and at peace throughout most of your life. People think they are free, or not free—this is a topic of great debate. But the truth is that you are free within those rules, because of the rules that God has established. Do you think God created life to run in chaos? Of course not. He created it to run in peace, and He honored mankind as the best of His creation, favored by Him. Being human, you must thank God for making you human.**
+
 **This is the truth.**
 
 
